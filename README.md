@@ -1,5 +1,3 @@
 # ngocminhtranit.github.io
 
-sjdjhjdhjhjhdjkhfks . .
-
-kjkdhdkjdkjdkjdkj
+sjdjhjdhjhjhdjkhfks . . kjkdhdkjdkjdkjdkj
